@@ -5,3 +5,5 @@ A tear fall from his eye as he thinks of his friend Haward and the Beileys they 
 ***
 Haward had been his best friend ever since he could remember. They met as children in the summer of 54. Haward looked like a barrel back then. A young portly lad with a big nose and discheveled hair.
 ***
+He might be fat but he had incredible humor and a big heart for alcohol. It was his cute sin he liked to drink
+***

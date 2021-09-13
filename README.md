@@ -10,3 +10,5 @@ He might be fat but he had incredible humor and a big heart for alcohol. It was 
 Suddenly, he sees a big storm coming, ...
 
 ***
+He goes to the supermaket too buy some alcohol before to shelt from the storm.
+***

@@ -8,5 +8,7 @@ Haward had been his best friend ever since he could remember. They met as childr
 He might be fat but he had incredible humor and a big heart for alcohol. It was his cute sin he liked to drink
 ***
 Suddenly, he sees a big storm coming, ...
-
+***
+"Oh damn" he thought. "That huge thing in the sky looks like a divine punishment for my alcoholic sin".
+He then turned around with his boat.
 ***

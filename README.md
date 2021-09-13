@@ -7,3 +7,6 @@ Haward had been his best friend ever since he could remember. They met as childr
 ***
 He might be fat but he had incredible humor and a big heart for alcohol. It was his cute sin he liked to drink
 ***
+Suddenly, he sees a big storm coming, ...
+
+***
